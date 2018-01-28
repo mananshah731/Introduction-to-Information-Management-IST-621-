@@ -1,1 +1,0 @@
-# Introduction-to-Information-Management-IST-621-
